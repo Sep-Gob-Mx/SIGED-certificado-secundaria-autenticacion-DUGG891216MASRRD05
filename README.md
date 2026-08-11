@@ -1,2 +1,0 @@
-# SIGED-certificado-secundaria-autenticacion-DUGG891216MASRRD05
-DUGG891216MASRRD05
